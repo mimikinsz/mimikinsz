@@ -1,3 +1,4 @@
+## <p align=center> ˚.⋆꒰১ 𝒲𝑒𝓁𝒸𝑜𝓂𝑒 ໒꒱⋆.˚ </p>
 <img src=Untitled6_20261009160300.png width=110%>
 <div align=center>
   ╭──────── 人⁠ ⁠•͈ ────────╮
@@ -8,3 +9,7 @@
 <br>
 <p align="center"> <img src=IMG_0616.gif width=150> </p>
 <img src=IMG_0617.gif width=100% height=63>
+<br>
+<br>
+<br>
+<a href=https://thetearsiveunshed.atabook.org/>新𝘣𝘰𝘰𝘬 </a>  // <a href=https://pronouns.cc/@Thenarcissisticmimikins>𝘱𝘳𝘯𝘴.𝘤𝘤 </a>
