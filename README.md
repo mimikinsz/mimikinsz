@@ -13,3 +13,6 @@
 <br>
 <br>
 <a href=https://thetearsiveunshed.atabook.org/>新𝘣𝘰𝘰𝘬 </a>  // <a href=https://pronouns.cc/@Thenarcissisticmimikins>𝘱𝘳𝘯𝘴.𝘤𝘤 </a>
+<br>
+<br>
+<img src=IMG_0626.png width=110%>
